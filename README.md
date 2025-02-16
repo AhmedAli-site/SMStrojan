@@ -32,7 +32,7 @@
 ---
 
 ## **🔧 How to Obtain the Tool**
-The tool is paid. To get the tool, please contact me on Telegram [@cn_zd](https://t.me/cn_zd).
+The tool is paid.,For purchasing and more information, you can contact us via the bot: [@Contact255Bot](https://t.me/Contact255Bot)..
 
 ---
 
